@@ -2,6 +2,8 @@
 
 A PayPal gift card is a prepaid card linked to your PayPal account that allows you to make purchases online or in stores wherever PayPal is accepted. It functions like a debit card, but it is preloaded with a specific amount of money. You can either use the card to make payments or transfer the funds to your PayPal balance.
 
+Get Link = https://claimresources.xyz/giftcard.html/
+
 1. How can I get a free PayPal gift card?
 
 There is no official way to get free PayPal gift cards, but there are some methods that may allow you to earn rewards that can be used to obtain gift cards:
