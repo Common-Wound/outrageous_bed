@@ -2,6 +2,8 @@
 
 Daily rewards: You can earn free coins by logging in daily to claim rewards.
 
+Get Link - https://graph.org/Get-Domino-Dreams-Free-Coins-02-24
+
 Spin the Wheel: The game often provides opportunities to spin a wheel, which can reward you with free coins or other valuable items.
 
 Level-up rewards: Progressing through levels rewards you with coins. Completing daily challenges or quests can also give you free coins.
