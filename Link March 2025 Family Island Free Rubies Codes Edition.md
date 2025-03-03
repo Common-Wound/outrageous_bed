@@ -2,6 +2,8 @@
 
 Rubies are the premium currency in Family Island. They can be used to speed up production, buy rare items, expand your island, or purchase other valuable resources that help you progress faster in the game.
 
+Get Link - https://allresources.xyz/familyisland.html/
+
 1. How can I get free rubies in Family Island?
 
 While rubies are typically earned through in-game purchases, there are some ways to earn them for free within the game:
